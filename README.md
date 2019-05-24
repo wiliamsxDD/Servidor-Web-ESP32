@@ -1,2 +1,2 @@
 # Servidor-Web-ESP32
-Willy, Nico y Pedro
+Wena los cabros hay que aplicarle a la vena dijo el Korem equisde
